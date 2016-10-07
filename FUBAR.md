@@ -46,5 +46,5 @@ NEW NEW NEW NEW NEW NEW NEW Feature
 
 my god there's too many features - Alice
 
-
 "this is taking all my  brain cells..... I should of gone to clown school like I wanted...Damn student loans" .-Carol
+ADDING SOME FEATURES IN CAPS!
