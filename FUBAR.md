@@ -33,4 +33,8 @@ testing conor -------- whoope
 
 I made it! -avery
 
+<<<<<<< HEAD
 conorCarol and averyBob making a new feature and stuff
+=======
+Can we build it? No! fuck this shit - Bob
+>>>>>>> 6280d40df168cc7a52d3268db37d8c8b70bab902
