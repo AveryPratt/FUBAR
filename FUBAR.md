@@ -19,3 +19,5 @@ Yet another feature... alice and ted
 HELLOOOOOOOOOOOOOOOOOO! - Carol
 Ted is lost...
 Bob and Carol/Sugey and Erick
+
+I don't know what else to say... - Carol
