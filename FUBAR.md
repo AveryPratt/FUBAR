@@ -10,7 +10,12 @@ NEW FEATURE! Carol and Ted (avery and erick)
 
 Boom Shalalaka !!!
 
+
 "We work harder everyday .. right carol"?-Bob
 "yes we do and I'm tired of it" -Carol
 
 Yet another feature... alice and ted
+
+HELLOOOOOOOOOOOOOOOOOO! - Carol
+Ted is lost...
+Bob and Carol/Sugey and Erick
