@@ -9,3 +9,7 @@ Ted and Alice/Erick and Sugey
 NEW FEATURE! Carol and Ted (avery and erick)
 
 Boom Shalalaka !!!
+
+HELLOOOOOOOOOOOOOOOOOO! - Carol
+Ted is lost...
+Bob and Carol/Sugey and Erick
