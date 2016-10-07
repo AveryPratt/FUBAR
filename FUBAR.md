@@ -46,5 +46,6 @@ NEW NEW NEW NEW NEW NEW NEW Feature
 
 my god there's too many features - Alice
 
-
 LAST ROUND!!!!!! WOOOOOOOO!!!! -Bob
+"this is taking all my  brain cells..... I should of gone to clown school like I wanted...Damn student loans" .-Carol
+ADDING SOME FEATURES IN CAPS!
