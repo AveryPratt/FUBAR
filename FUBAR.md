@@ -34,12 +34,10 @@ testing conor -------- whoope
 I made it! -avery
 
 
-
-conorCarol and averyBob making a new feature and stuff and stuff
-
 Can we build it? No! fuck this shit - Bob
 
 
 hmm , wonder what ill eat for dinner on December 12, 2016. -ted
+
 
 conorCarol and averyBob making a new feature and stuff and stuff
